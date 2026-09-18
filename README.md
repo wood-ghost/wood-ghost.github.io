@@ -1,1 +1,1 @@
-# wood-ghost.github.io
+# [personal info](https://github.com/wood-ghost)
